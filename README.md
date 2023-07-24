@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @PubgGamerUzbSila || Sattorov Kamronbek
+- 👋 Hi, I’m @PubgGamerUzbSila «  |  » Sattorov Kamronbek
 - 👀 I’m interested in ...???
 - 🌱 I’m currently learning ...???
 - 💞️ I’m looking to collaborate on ...???
